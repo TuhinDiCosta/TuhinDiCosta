@@ -1,17 +1,19 @@
+![I am a web developer & Wix / Editor X & Squarespace Expert.](https://media.licdn.com/dms/image/D5616AQEIFlpB591m_w/profile-displaybackgroundimage-shrink_350_1400/0/1694208179002?e=1699488000&v=beta&t=O2QQbOFqqZmRxDRX5yhXBGxjRiOzR2OiMWIQxi_Bido)
+
 ### Hi there 👋, my name is Tuhin Di Costa
-#### I am a web developer & Wix, Editor X, Velo, Squarespace  Expert.
-![I am a web developer & Wix, Editor X, Velo, Squarespace  Expert.](https://www.linkedin.com/in/tuhindicosta/)
+#### I am a web developer & Wix / Editor X & Squarespace Expert.
 
-Hi there!
-I'm experienced in Tuhin Di Costa, Wix / EditorX, Squarespace & SEO expertise. I specialize in creating stunning and functional websites. *My Professional Skills* = ➤ T-shirt Designer ➤ Wix & Squarespace Web Designer ➤ Wix SEO Expert ➤ Wix store ➤ Website re-design ➤ Squarespace Expert ➤ popup Form & Gravity form expert ➤ Landing Page & Store Design, ➤ Dropshipping & Product Research ➤ Website Optimization ➤ On-Page SEO Website Speed Optimization ➤ E-commerce store design ➤ Lead Generation  ➤ Digital Marketing Expert ➤ Mailchimp campaign expert & Completed 30+ projects since 2022
 
-Skills: Wix / EditorX, Squarespace / T-shirt Designer / Wix & Squarespace Web Designer / Wix SEO Expert / Wix store / Website re-design / Squarespace Expert / popup Form & Gravity form expert / Landing Page & Store Design / Dropshipping & Product Research / Website Optimization / On-Page SEO Website Speed Optimization / E-commerce store design / Lead Generation  / Digital Marketing Expert / Mailchimp campaign expert 
+Hi there! 
+I'm experienced in Tuhin Di Costa, Wix / EditorX, Squarespace & SEO expertise. I specialize in creating stunning and functional websites. My Professional Skills = ➤ T-shirt Designer ➤ Wix & Squarespace Web Designer ➤ Wix SEO Expert ➤ Wix store ➤ Website re-design ➤ Squarespace Expert ➤ popup Form & Gravity form expert ➤ Landing Page & Store Design, ➤ Dropshipping & Product Research ➤ Website Optimization ➤ On-Page SEO Website Speed Optimization ➤ E-commerce store design ➤ Lead Generation ➤ Digital Marketing Expert ➤ Mailchimp campaign expert & Completed 30+ projects since 2023
 
-- 🔭 I’m currently working on Freelancer on Fiverr & Upwork 
-- 🌱 I’m currently learning Wix / EditorX | Squarespace Website Design 
-- 👯 I’m looking to collaborate on  GitHub 
-- 💬 Ask me about Wix / EditorX | Squarespace Website Design & Development Expert 
-https://prnt.sc/YMFeZ8eh9n-G
+Skills: Wix / EditorX, Squarespace / T-shirt Designer / Wix & Squarespace Web Designer / Wix SEO Expert / Wix store / Website re-design / Squarespace Expert/popup Form & Gravity form expert / Landing Page & Store Design / Dropshipping & Product Research / Website Optimization / On-Page SEO Website Speed Optimization / E-commerce store design / Lead Generation / Digital Marketing Expert / Mailchimp campaign expert
+
+- 🔭 I’m currently working on this page. I’m currently working on Freelancer on Fiverr & Upwork 
+- 🌱 I’m currently learning I’m currently learning Wix / EditorX | Squarespace Website Design 
+- 👯 I’m looking to collaborate on I’m looking to collaborate on GitHub 
+- 💬 Ask me about  Wix / EditorX | Squarespace Website Design & Development Expert 
+
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/https://github.com/TuhinDiCosta)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='40'>](https://www.linkedin.com/in/https://www.linkedin.com/in/tuhindicosta//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/https://www.facebook.com/tuhin.dicosta.3)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/https://www.instagram.com/tuhindicosta//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/https://twitter.com/DcostaTuhin)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/stackoverflow.svg' alt='stackoverflow' height='40'>](https://stackoverflow.com/users/https://stackoverflow.com/users/17204405/tuhin-di-costa)  
 
