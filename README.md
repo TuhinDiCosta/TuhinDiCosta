@@ -1,4 +1,4 @@
-![I am a web developer & Wix / Editor X & Squarespace Expert.](https://media.licdn.com/dms/image/D5616AQEIFlpB591m_w/profile-displaybackgroundimage-shrink_350_1400/0/1694208179002?e=1699488000&v=beta&t=O2QQbOFqqZmRxDRX5yhXBGxjRiOzR2OiMWIQxi_Bido)
+![I am a web developer | Wix Expert | Web Designer | Shopify Expert | WordPress Website Designer | WordPress Elementor Expert | Squarespace Expert..](https://media.licdn.com/dms/image/D5616AQEIFlpB591m_w/profile-displaybackgroundimage-shrink_350_1400/0/1694208179002?e=1699488000&v=beta&t=O2QQbOFqqZmRxDRX5yhXBGxjRiOzR2OiMWIQxi_Bido)
 
 ### Hi there 👋, my name is Tuhin Di Costa
 #### I am a web developer & Wix / Editor X & Squarespace Expert.
